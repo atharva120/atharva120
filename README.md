@@ -1,6 +1,5 @@
 - 👋 Hi, I’m atharva120
 - 👀 I’m interested to learn new things... 
-- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
